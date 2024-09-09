@@ -7,3 +7,4 @@ Let it sit for a couple of mintues
 then once cooled down feel free to eat it
 How to make pasta
 first step is to cook the pasta in hot water
+second step is to wait for the pasta to dry
